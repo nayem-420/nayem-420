@@ -23,7 +23,7 @@ A dedicated and goal-oriented individual with a strong foundation in **Computer 
 ### 📫 Connect with Me
 - **LinkedIn:** [linkedin.com/in/imranhasannayem](https://www.linkedin.com/in/imranhasannayem/)
 - **Email:** imranhasannayem9@gmail.com
-- **Facebook:** [My Profile]([https://www.facebook.com/share/14zGWVPbru/](https://m.me/imranhasan.nayem.9)
+- **Facebook:** [My Profile]([https://www.facebook.com/share/14zGWVPbru/](https://www.facebook.com/imranhasan.nayem.9)
 
 ---
 *"My goal is to apply my knowledge to solve real-world challenges while continuously improving my technical and analytical skills."*
